@@ -5,4 +5,4 @@ You can buy our app, we will build it for you and deploy it on your own server, 
 
 We provide all the source code and technical documents, and after-sales service for one year. If you need to develop other functions, we can also implement them for you. If you are interested, please contact me
 
-Our technical team can develop  video live app and Audio live broadcast system，like bigolive APP clone and Tiktok 、Snack Video 、Kwai、MICO  、Video Show、Uplive、Cloubhouse、WhatsApp +8615244100280
+Our technical team can develop  video live app and Audio live broadcast system，like bigolive APP clone and Tiktok 、Snack Video 、Kwai、MICO  、Video Show、Uplive、Cloubhouse、WhatsApp +44 7999 529473
